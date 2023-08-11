@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @francisco22rmj
 - 👀 I’m interested in marketing business
 - 🌱 I’m currently learning data business
-- 💞️ I’m looking to collaborate on transfer to spain
+- 💞️ I’m looking to collaborate on ....
 - 📫 How to reach me email franz2star2@gmail.com
 
 <!---
